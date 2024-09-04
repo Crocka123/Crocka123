@@ -1,2 +1,2 @@
 Hi, I'm @Crocka123 
-I like software engineering and programming
+Im a goober that likes programming
